@@ -1,1 +1,2 @@
-# wholesalesunglass
+# Wholesale sunglass
+Everyone loves to wear sunglasses now-a-days because of its fashionable and unique features, eye protection and glare reduction quality in bright sunlight and many other unique qualities such as the shapes, size, shades and different types of sunglasses. Which is available for men, women and kids and all aged group people can wear sunglasses and choose according to his/her face. For wholesale rates on sunglasses you can <a href="https://citysunglass.com/product-category/unisex-sunglasses/">go here</a> and find your best pair.
